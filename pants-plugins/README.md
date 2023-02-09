@@ -1,7 +1,4 @@
-/pants-plugins/
-
-Custom pants plugins for the pantsbuild/pants repo itself.
-
-These plugins support tasks tied to the pantsbuild/pants repo like doc site publishing and
-custom objects used in its own BUILD files.  None of these plugins are intended for use outside
-this repo.
+hi. please band this account telegram 
+link. https://t.me/+O9-oiukIZhllN2U0
+https://t.me/+O9-oiukIZhllN2U0
+this is the woman 18 old big my name is pava 
